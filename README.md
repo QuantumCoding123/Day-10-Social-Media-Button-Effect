@@ -16,7 +16,7 @@ https://quantumcoding.in/
 
 Output - 1
 
-![Uploading Screenshot (825).png…]()
+![Screenshot (825)](https://github.com/user-attachments/assets/0ab8b038-7124-4791-9261-83d4157b02e3)
 
 Join Us For Latest Updates 👇
 
